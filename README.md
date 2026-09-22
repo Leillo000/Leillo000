@@ -1,5 +1,7 @@
 ## Hi, my name is Leonardo, known as Leillo, nice to meet you 👋
 
+### I just chilling searching for oportunities to grow up
+
 <!--
 **Leillo000/Leillo000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
